@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ryantheartman
+- 👀 I’m interested in art and animation!
+- 🌱 I’m currently learning drawing porportions!
+- 💞️ I’m looking to collaborate on art and or animation collabs!
+- 📫 How to reach me! go to @RyanTHEartman on yt! 
+- 😄 Pronouns: He/they
+- ⚡ Fun fact: I LOVE FNAF!!
